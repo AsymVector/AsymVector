@@ -1,4 +1,4 @@
-# 👋 Hi there! I'm [AsymVector]
+# 👋 Hi there! I'm AsymVector
 
 ---
 ### 🚀 Learning & Exploring
