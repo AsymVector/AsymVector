@@ -1,4 +1,4 @@
-# 👋 Hi there! I'm [Your Name/Nickname]
+# 👋 Hi there! I'm [AsymVector]
 
 ---
 ### 🚀 Learning & Exploring
